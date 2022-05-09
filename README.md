@@ -31,7 +31,9 @@
 - Facebook: Aleksandr Edelstein (alexedelst)
 
 "Everything what is not killing us, It makes us stronger"
+
 "I know that I don't know anything"
+
 "Then slowly you are moving, then farther you will be" 
 
 THANK YOU SO MUCH FOR YOUR TIME TO READ THIS STUFF :)
